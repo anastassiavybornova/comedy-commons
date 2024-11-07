@@ -8,7 +8,7 @@ Presentation at [Historical Materialism 2024](https://www.historicalmaterialism.
 
 ***
 
-* Download the slides by clicking on the `.pdf` file above.
+* See the slides by clicking on the `.pdf` file above. Download with right-click and "download linked file".
 * Get in touch with by email: [anvy@itu.dk](mailto:anvy@itu.dk)
 
 ***
